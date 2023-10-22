@@ -4,4 +4,6 @@
 
 3.Newsletter: https://smartiandigitalmarket.blogspot.com/2023/09/newsletter-on-my-company.html  
 
-4.Facebook: https://www.facebook.com/profile.php?id=61552604454527
+4.Facebook: https://www.facebook.com/profile.php?id=61552604454527  
+
+5.LinkedIn: https://www.linkedin.com/in/shaik-ibrahim-85a323296/
