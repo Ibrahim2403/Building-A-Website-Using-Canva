@@ -6,4 +6,4 @@
 
 4.Facebook: https://m.facebook.com/story.php?story_fbid=122112533966073129&id=61552193896827&mibextid=Nif5oz  
 
-5.LinkedIn: 
+5.LinkedIn: https://www.linkedin.com/in/mohamed-mufithu-2480b5297
